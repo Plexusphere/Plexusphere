@@ -1,6 +1,6 @@
 - 👋 Sup, this is the profile of @Plexusphere
 
-- 👀 My interests are passionate programming, especially in C/C++ and studying the human behaviour
+- 👀 My interests are passionate programming, especially in C/C++, playing chess and studying the human behaviour
   
 - 📫 How to reach me?
     * Simple Answer: You dont.
