@@ -6,10 +6,6 @@
     * I would not like to be contacted, thank you for your cooperation.
       
 - ✳️ Pronouns: Call me whatever you'd like.
-  
-- ⚡ Fun fact: Avocados are not vegetables.
-
-- 🎵 Enjoys: Music by funeral (xxfuneral)
 
 
 <!---
